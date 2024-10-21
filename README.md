@@ -20,7 +20,7 @@
 - **Email:** anas.aliky@outlook.com
         
 ### 😄 Pronouns: ...
-- He/Him, She/Her, They/Them (whichever you prefer)
+- He/Him (whichever you prefer)
 
 ### ⚡ Fun fact:
 - I love coding while listening to Lo-fi music! 🎧
